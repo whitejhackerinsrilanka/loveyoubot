@@ -45,7 +45,7 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
   
 [![Run on Repl.it](https://repl.it/badge/github/quiec/RAVANA)](https://replit.com/@RAVANASL/RAVANA-Qr)
 
-[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://dashboard.heroku.com/new?template=https://github.com/whitejhackerinsrilanka/slRavana)
+[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://dashboard.heroku.com/new?template=https://github.com/whitejhackerinsrilanka/bboy)
      </di
      
 ### mk
