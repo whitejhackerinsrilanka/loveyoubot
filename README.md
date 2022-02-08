@@ -62,10 +62,8 @@ Userbot නිසා; ඔබේ WhatsApp ගිණුම තහනම් කළ 
   [![RAVANA-SL](https://github.com/RAVANA-SL.png?size=100)](https://github.com/RAVANA-SL) |  [![Budy X](https://github.com/MrChaby.png?size=100)](https://github.com/MrChaby) 
 ----|----
 [RAVANA-SL](https://github.com/RAVANA-SL)  | [MrChaby](https://github.com/MrChaby) 
-Developer,Bug Fixes, Commits, Modules | Code Owner: Bug Fixes, Modules 
-
-### [https://telegra.ph/file/742be924e21f090844035.jpg(https://bpasistan.wixsite.com/bboy]
-    
+Developer,Bug Fixes, Commits, Modules | Code Owner: Bug Fixes, Modules 
+[[https://telegra.ph/file/742be924e21f090844035.jpg(https://bpasistan.wixsite.com/bboy)]]
 
 # License
 slRavana is licensed under [GNU Affero General Public License](https://www.gnu.org/licenses/agpl-3.0.en.html) v3 or later.
