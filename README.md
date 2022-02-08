@@ -48,7 +48,7 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
 [![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://dashboard.heroku.com/new?template=https://github.com/whitejhackerinsrilanka/bboy)
      </di
  
- 
+ <div align="center">
  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
   
  ### [![whatsapp](https://chat.whatsapp.com/CxnlVOYqExIJe6AJILyyCm)
