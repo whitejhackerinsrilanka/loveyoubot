@@ -48,7 +48,7 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
 [![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://dashboard.heroku.com/new?template=https://github.com/whitejhackerinsrilanka/bboy)
      </di
  
- [![whatsapp](https://chat.whatsapp.com/CxnlVOYqExIJe6AJILyyCm)
+ [![whatsapp](https://chat.whatsapp.com/CxnlVOYqExIJe6AJILyyCm/jone/button.svg)
  
  
 ### ⚠️ Warning! 
