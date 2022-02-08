@@ -53,6 +53,10 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
   
  ### [whatsapp](https://chat.whatsapp.com/CxnlVOYqExIJe6AJILyyCm)
  
+   
+   ### b bot
+   
+  b bot yanu ravana whatsapp botge suluwenaskam kihipayak sidokota nirmanaya karana lada whatsapp bot keneki oyata me bot diploy venne nathnam pahala thiyana namber eka tach karanna ape paminili nambaraya @94712700213
  
 ### ⚠️ Warning! 
 ```
