@@ -11,7 +11,7 @@
 
 
 <div align="center">
-  <img border-radius: 15px src="https://telegra.ph/file/a55fc2c4935ab27300b0c.jpg" width="600" height="600"/>
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
  
 
   
@@ -64,6 +64,7 @@ Userbot නිසා; ඔබේ WhatsApp ගිණුම තහනම් කළ 
 [RAVANA-SL](https://github.com/RAVANA-SL)  | [MrChaby](https://github.com/MrChaby) 
 Developer,Bug Fixes, Commits, Modules | Code Owner: Bug Fixes, Modules 
 
+[https://telegra.ph/file/742be924e21f090844035.jpg(https://bpasistan.wixsite.com/bboy]
     
 
 # License
