@@ -49,7 +49,7 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
      </di
  
  <div align="center">
- <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ <img border-radius: 15px src="https://telegra.ph/file/3908e19f9f0f7ddd9b2aa.jpg"width="600" height="600"/>
   
  ### [![whatsapp](https://chat.whatsapp.com/CxnlVOYqExIJe6AJILyyCm)
  
