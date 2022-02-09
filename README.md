@@ -63,10 +63,12 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
    ### ඔයාලට පහලින් පිලිවෙලට බොට් හදන විදිය තියනව ඔයාල පහල විදියටම කරන්න ප්‍රශ්නයක් වුනොත් මට කියන්න මගේ නම්බරය @94712700213 එහෙනම් පහල විදියටම කරන්න...
    
    
+   ### 🤘ESSELLAMA OYATA PURAWANNA THIYENNE APP NAME EKA
+   
    <div align="center">
   <img border-radius: 15px src="https://telegra.ph/file/5fc976c5ab5c8b5805cd1.jpg"width="600" height="600"/>
  
-      
+ *uda thiyanawa wage pennana thanata oya kamathi namak denna oyata kamathi ekak dunnata prashnayak na ☊💟    
                        
                      
                   
