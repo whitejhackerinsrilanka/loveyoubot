@@ -59,6 +59,94 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
   b bot yanu ravana whatsapp botge suluwenaskam kihipayak sidokota nirmanaya karana lada whatsapp bot keneki oyata me bot diploy venne nathnam pahala thiyana namber eka tach karanna ape paminili nambaraya @94712700213
  
    
+   
+   ### ඔයාලට පහලින් පිලිවෙලට බොට් හදන විදිය තියනව ඔයාල පහල විදියටම කරන්න ප්‍රශ්නයක් වුනොත් මට කියන්න මගේ නම්බරය @94712700213 එහෙනම් පහල විදියටම කරන්න...
+   
+   
+   <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+      
+      <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+         
+         
+         <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+            
+            
+            
+            
+            <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+               
+      <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+          
+               
+               
+               
+        <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+        
+    
+            
+      <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+         
+         <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+            
+            
+            <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+               
+               
+               <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+                  
+                  <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+                     
+                    <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+                       
+                       
+        <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+           
+           <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+              
+              <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+                 <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/742be924e21f090844035.jpg" width="600" height="600"/>
+ 
+                 
+              
+           
+                       
+                       
+                     
+                  
+               
+            
+      
+   
+   
    ### ඔයාලට පහසුවට අපි removebg api ky එක පහලින් දාලා තියෙන්නෙ ඒක කොපි කර ගන්න diploy කරනකොට ඕන වෙනවා
    
    REMOVE BG API KEY ='4hqLXSpNQZTrzwzphd7owpWv'
