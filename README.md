@@ -70,7 +70,11 @@ By establishing the RAVANA, you are deemed to have accepted these responsibiliti
  
  *uda thiyanawa wage pennana thanata oya kamathi namak denna oyata kamathi ekak dunnata prashnayak na ☊💟    
                        
-                     
+ ### 🤘DEVENIYATA  ADD MASEJ EKA PURAWANNA..  
+      
+  <div align="center">
+  <img border-radius: 15px src="https://telegra.ph/file/5fc976c5ab5c8b5805cd1.jpg"width="600" height="600"/>
+     
                   
                
             
